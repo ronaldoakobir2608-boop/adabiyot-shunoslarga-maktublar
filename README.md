@@ -1,2 +1,2 @@
-# ogahiyga-anbatga-mashrabga-maktub
+# ogahiyga-anbarga-mashrabga-maktub
 bu saytta ogahiyga anbarga mashrab maktub yozilgan 
